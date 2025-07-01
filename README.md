@@ -1,0 +1,2 @@
+# psychic-fun-
+myidea
